@@ -8,3 +8,4 @@
 - [https___itch_io (20260510_102024)](pages/itch.io/https___itch_io/20260510_102024/index.md) — 81 media files
 - [https___sissyhypno_com (20260510_102305)](pages/sissyhypno.com/https___sissyhypno_com/20260510_102305/index.md) — 54 media files
 - [https___www_hornygamer_com_tag_sissy (20260510_103020)](pages/hornygamer.com/https___www_hornygamer_com_tag_sissy/20260510_103020/index.md) — 1 media files
+- [https___sissyhypno_com_video_sissy_work_a_poppers_sissy_trainer_959_html (20260510_104305)](pages/sissyhypno.com/https___sissyhypno_com_video_sissy_work_a_poppers_sissy_trainer_959_html/20260510_104305/index.md) — 50 media files
